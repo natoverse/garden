@@ -29,7 +29,8 @@ speech, of untruths (the sound connected with this is AH).
 6. Now visualize a blue beam of light coming from the heart of
 Padmasambhava to your heart. This beam purifies you of wrongs done in
 ignorance, wrong thoughts (i.e., thoughts which maintain the illusion). (The
-sound associated with this beam is HUM.) 7. Now allow that blue beam to
+sound associated with this beam is HUM.)
+7. Now allow that blue beam to
 become a broad blue avenue of light. Then you will see Padmasambhava come
 down that avenue and come directly into your heart. Here he will sit in your
 hridayam (spiritual heart). His mantra is: Om Ah Hum Vajra Guru Padma Siddhi
